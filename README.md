@@ -1,6 +1,6 @@
-# _Resume_
+# _Band website_
 
-#### _Resume 01/09/2019_
+#### _Band website 01/09/2019_
 
 #### By _**Mark Strickland and Olha Wysocky**_
 
